@@ -6,10 +6,10 @@ The **Tiranga Game** is a revolutionary Indian gaming platform that offers a uni
 
 With its secure platform and easy-to-use interface, **Tiranga Game** ensures that players can focus on enjoying their favorite games while earning real money. The app's popularity has surged in India due to its innovative features and opportunities to win exciting cash prizes.  
 
-## Tiranga Game : 👉 [Tiranga Games](http://www.sikkim8.com/#/register?invitationCode=316164149930)👈
-## Tiranga Game : 👉 [Tiranga Games](http://www.sikkim8.com/#/register?invitationCode=316164149930)👈
-## Tiranga Game : 👉 [Tiranga Games](http://www.sikkim8.com/#/register?invitationCode=316164149930)👈
-## Tiranga Game : 👉 [Tiranga Games](http://www.sikkim8.com/#/register?invitationCode=316164149930)👈
+## Tiranga Game : 👉 [Tiranga Games](https://www.sikkim11.com/#/register?invitationCode=316164149930)👈
+## Tiranga Game : 👉 [Tiranga Games](https://www.sikkim11.com/#/register?invitationCode=316164149930)👈
+## Tiranga Game : 👉 [Tiranga Games](https://www.sikkim11.com/#/register?invitationCode=316164149930)👈
+## Tiranga Game : 👉 [Tiranga Games](https://www.sikkim11.com/#/register?invitationCode=316164149930)👈
 
 ![Tiranga Game](https://github.com/user-attachments/assets/099cfd5b-0891-4d64-b49e-cd65612192ac)
 
