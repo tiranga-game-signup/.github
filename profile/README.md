@@ -1,6 +1,6 @@
-# Tiranga Game Signup Now: 👉 [Tiranga Games](https://google.com) 👈📲
+## Tiranga Game - Signup & Play Now
 
-# What is Tiranga Game?  
+## What is Tiranga Game?  
 
 The **Tiranga Game** is a revolutionary Indian gaming platform that offers a unique blend of fun and real-money earning opportunities. It provides users with an engaging experience through a variety of games like Color Prediction, Aviator, Win Go, and Rummy. Whether you're a casual gamer or a seasoned pro, the **Tiranga Game** delivers an exhilarating and rewarding gaming experience.  
 
